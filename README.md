@@ -1,2 +1,4 @@
 # hacketsv1
-made for jailbreaking in blaxia!
+thanks for downloading hacketsv1
+Donate:
+bwc.worshipCash.bwa/c32
